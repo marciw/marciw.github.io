@@ -1,8 +1,6 @@
 ---
 ---
 
-## Marci Windsheimer
-
 🚧🚧🚧 _Coming soon: portfolio, more_ 🚧🚧🚧
 
 [LinkedIn](https://linkedin.com/in/marciw)
