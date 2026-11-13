@@ -3,7 +3,7 @@
 
 🚧🚧🚧 _Coming soon: portfolio, more_ 🚧🚧🚧
 
-[LinkedIn](https://linkedin.com/in/marciw)
+[LinkedIn profile](https://linkedin.com/in/marciw)
 <br>
 <br>
 <br>
